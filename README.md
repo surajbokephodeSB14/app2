@@ -1,2 +1,2 @@
 # app2
-vaduj election candidate of king sujit 
+ i love country
